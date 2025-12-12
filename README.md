@@ -44,7 +44,7 @@ Cada marca é escolhida pela autenticidade, qualidade e tradição na perfumaria
 
 ## 📬 Contatos e Redes Sociais
 - **Site:** https://www.perfumesarabes.com.br  
-- **Instagram:** https://instagram.com/perfumesarabes  
+- **Instagram:** https://www.instagram.com/perfumesarabes_oficial/  
 - **Facebook:** https://facebook.com/perfumesarabesoficial  
 
 ---
